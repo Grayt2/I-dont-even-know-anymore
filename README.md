@@ -1,2 +1,2 @@
-# I-dont-even-know-anymore
-I be just making anything atp :sob:
+# Yeah I dont even know at this point
+I made this for class, and oh my is it so good :sob: just be ready for the java thing I'm making next, its gunna be so fire!!!
